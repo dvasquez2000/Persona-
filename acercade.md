@@ -1,4 +1,4 @@
-Añadiendo nueva info en este archivo
+Añadiendo info 
 00042818
 Diego Alejandro Vasquez Benitez
 
